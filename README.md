@@ -1,0 +1,1 @@
+Cook with less oil, steam baked, served with spicy desi chutney, chilly and sev famous and special Gujarati traditional street food surti locho is out of the world. Prepare it for breakfast or supper or whenever you like eating.
